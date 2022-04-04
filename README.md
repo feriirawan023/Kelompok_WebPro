@@ -4,4 +4,4 @@
 2. Feri Irawan (065119023)
 3. Nina Hermiati (065119026)
 4. Albertus Magnus Dimas Setianto (065119028)
-5. Herli (Sumarti 065119102)
+5. Herli Sumarti (065119102)
